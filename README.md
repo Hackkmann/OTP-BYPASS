@@ -63,4 +63,4 @@ The Advanced Threat Simulator 2024 is designed for users of all skill levels, in
 # Disclaimer: 
 This tool is purely for educational purposes only. Unauthorized use of similar tools is illegal and unethical. Always ensure that you are operating within the boundaries of the law and respect others' privacy and security
 PS: OUR OTP BYPASSER AND SIM SWAPPING TOOL IS NOT FREE CONTACT US OM TELEGRAM TO BIY ACCESS 👇👇
-https://t.me/OWNEROFPTX
+https://t.me/H13kM1N
